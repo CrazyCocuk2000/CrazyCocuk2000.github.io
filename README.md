@@ -1,1 +1,1 @@
-# CrazyCocuk2000.github.io
+https://crazycocuk2000.github.io/
